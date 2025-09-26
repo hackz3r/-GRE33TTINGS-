@@ -16,7 +16,7 @@ Please refrain from acting like a creep to me, if you wanna hang out or cuddle w
 Don't  just sit around staring at me in hopes I'll notice you.
  I am very busy at all times and do not wish to be stalked or watched from afar. I am not a entertaining puppy you can just watch. 
 
-  Please do not interact with me if you are under 14,  unless you are already my friend.
+  Please do not interact with me if you are under 14, UNLESS i interact with you first or unless you are already my friend.
 
 Do not speak to me if all you do is surround yourself with anger and sadness. This is directed to a person my friend  knows. Keep making everything about you and it'll bite you in the ass one day. You know EXACTLY who you are. 
 
